@@ -7,5 +7,5 @@
 ## 🧭 Let’s Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/sujal-bhor/)
-- 📂 [X.com](https:x.com/SujalOnX/)
+- 📂 [X.com](https://x.com/SujalOnX/)
 - 📫 [Mail](mailto://bhorsujal@gmail.com)
